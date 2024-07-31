@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **tanujkmbj1998@gmail.com**
 
-- ⚡ Fun fact **I am very health conscious**
+- ⚡ Fun fact ** very health conscious**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
